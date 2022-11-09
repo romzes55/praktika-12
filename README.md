@@ -1,1 +1,1 @@
-# praktika-12
+# Praktika
